@@ -1,5 +1,36 @@
-<div align="center">
-
-<sup>感情</sup><sup>がキ</sup><sup>ラキ</sup><sup>ラあ</sup><sup>なた</sup><sup>でき</sup><sup>らき</sup><sup>らし</sup><sup>てる</sup><sup>今だ</sup><sup>けが</sup><sup>あた</sup><sup>しで</sup><sup>すこ</sup><sup>の甘</sup><sup>い世</sup><sup>界嘘</sup><sup>にな</sup><sup>るな</sup><sup>らそ</sup><sup>れ以</sup><sup>外の</sup><sup>こと</sup><sup>なん</sup><sup>てい</sup><sup>らな</sup><sup>いよ</sup><sup>セイ</sup><sup>ウォ</sup><sup>ー笑</sup><sup>って</sup><sup>エモ</sup><sup>ーシ</sup><sup>ョン</sup><sup>グレ</sup><sup>ーな</sup><sup>感情</sup><sup>今は</sup><sup>いら</sup><sup>ない</sup><sup>愛を</sup><sup>唄っ</sup><sup>てい</sup><sup>よう</sup><sup>よこ</sup><sup>の部</sup><sup>屋の</sup><sup>中な</sup><sup>らき</sup><sup>っと</sup><sup>明る</sup><sup>いよ</sup><sup>腫れ</sup><sup>た背</sup><sup>中の</sup><sup>かさ</sup><sup>ぶた</sup><sup>千切</sup><sup>れた</sup><sup>羽根</sup><sup>が生</sup><sup>えて</sup><sup>いた</sup><sup>跡傷</sup><sup>を抉</sup><sup>って</sup><sup>は確</sup><sup>かめ</sup><sup>たま</sup><sup>だ血</sup><sup>は赤</sup><sup>いこ</sup><sup>と守</sup><sup>れな</sup><sup>い誓</sup><sup>いで</sup><sup>汚し</sup><sup>たア</sup><sup>トリ</sup><sup>エあ</sup><sup>なた</sup><sup>と出</sup><sup>会い</sup><sup>たた</sup><sup>だそ</sup><sup>れだ</sup><sup>けで</sup><sup>ふっと</sup><sup>崩れ</sup><sup>落ち</sup><sup>た甘</sup><sup>くて</sup><sup>痛く</sup><sup>て飲</sup><sup>み込</sup><sup>めな</sup><sup>いほ</sup><sup>どの</sup><sup>初め</sup><sup>ての</sup><sup>気持</sup><sup>ちに</sup><sup>あな</sup><sup>たの</sup><sup>名前</sup><sup>をつ</sup><sup>けよ</sup><sup>う淡</sup><sup>くて</sup><sup>脆く</sup><sup>て溶</sup><sup>けて</sup><sup>しま</sup><sup>いそ</sup><sup>うだ</sup><sup>やが</sup><sup>て終</sup><sup>わる</sup><sup>のな</sup><sup>らわ</sup><sup>たし</sup><sup>の命</sup><sup>をあ</sup><sup>げよ</sup><sup>う枯</sup><sup>れて</sup><sup>果て</sup><sup>るの</sup><sup>なら</sup><sup>わた</sup><sup>しの</sup><sup>命を</sup><sup>あげ</sup><sup>よう</sup><sup>この</sup><sup>愛を</sup><sup>くれ</sup><sup>たあ</sup><sup>なた</sup><sup>にす</sup><sup>べて</sup><sup>あげ</sup><sup>よう</sup>
-
-</div>
+<p align="center">
+<sup>スキのピントがズレていって外の世界とはディスコミュニケーションアイを隠した胸の奥は誰にも覗かせない  
+愛したってどうしたってなんにも汚れやしないよもう天使だって悪魔だってここでは囁かないよ  
+制服のポケットに隠した鈍い鼓動であなたと逃げ出してみよう永遠の意味なんてないけどさずっとそこにいてね。</sup>  
+</p>
+<p align="center">
+<sup>感情がキラキラあなたでキラキラしてる今だけがあたしですこの甘い世界嘘になるならそれ以外のことなんていらないよ  
+セイウォー笑ってエモーショングレーな感情今はいらない愛を唄っていようよこの部屋の中ならきっと明るいよ  
+迷子のまんまのアイデンティティあそもそも探す気なかったりアイラブユーを欲しがるばっかひとりぼっちじゃ何にもできない</sup>  
+</p>
+<p align="center">
+<sup>あの子もあの子もあたしもあいつも××0点0点こんなんだからいけないのってわかってる自分に酔ってたの  
+でも雑草みたいな雑踏であなたのままいるあなたは満点隠して蓋した曖昧をぜんぶあたしにしてくれた  
+天使並みダミーな態度もテンパるディスコミュ系なモードもあなたに魅せるすべてだよダメなところも笑ってよ  
+本当のあたしじゃないとかさもうどうだっていいよ毎日がグダグダアイマイにグダグダしてるいつもだってあたしだ  
+この無味なライフまでなかったらあたしもあなたもいない！感情がキラキラあなたでキラキラしてる今だけが全部じゃない！  
+この甘い世界の嘘も本当もやっぱ頂戴どれもあたしなんだ！セイウォー叫んでエモーション繕ったヴェールはもういらない  
+愛を唄っていようよこの部屋の中からゼンブ変えようよ</sup>  
+</p>
+<p align="center">
+<sup>腫れた背中のかさぶた千切れた羽根が生えていた跡傷を抉っては確かめたまだ血は赤いこと  
+守れない誓いで汚したアトリエあなたと出会いただそれだけでふっと崩れ落ちた  
+甘くて痛くて飲み込めないほどの初めての気持ちにあなたの名前をつけよう</sup>  
+</p>
+<p align="center">
+<sup>淡くて脆くて溶けてしまいそうだやがて終わるのならわたしの命をあげよう白い四角いこの病室は崩れることのない角砂糖  
+麻酔の香りに包まれて瞼を閉じていた火照る頬早さを増していく脈拍薬の効かないこんな病気を愛と呼ぶのでしょう  
+甘くて痛くて毒を帯びた蜜に落ちた羽虫のようにあなたに冒されていく柔くて解れて流れてしまいそうだ  
+枯れて果てる前にわたしの命をあげよう</sup>  
+</p>
+<p align="center">
+<sup>消えないように消せないようにその手で触れて傷つけて汚してもし叶うのならどうかどうかその罪その罰そのすべて分かち合えますように  
+甘くて痛くて飲み込めないほどの初めての気持ちにあなたの名前をつけよう(あなたの名前をつけよう)  
+淡くて脆くて溶けてしまいそうだやがて終わるのならわたしの命をあげよう  
+枯れて果てるのならわたしの命をあげようこの愛をくれたあなたにすべてあげようわたしの命をあげよう</sup>  
+</p>
